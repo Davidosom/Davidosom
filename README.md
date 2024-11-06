@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Davidosom
+- 👋 Hi, I’m @Walter_White
 - 👀 I’m interested in cooking
 - 🌱 I’m currently learning how to do math
 - 💞️ I’m looking to collaborate on chemichal productions
